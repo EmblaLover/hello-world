@@ -5,4 +5,4 @@ Cykel here, I love my amazing girlfriend Embla, and I hope to get as good at cod
 
 Let's goooooo
 
-btw, Embla's chocolate fudge cake is the realest bomb!
+btw, Embla's chocolate fudge cake is seriously the bomb!
